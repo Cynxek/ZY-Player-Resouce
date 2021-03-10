@@ -1,2 +1,2 @@
 # ZY-Player-Resouce
-世界の残酷な物語
+果てしない夢

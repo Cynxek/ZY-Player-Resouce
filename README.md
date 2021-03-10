@@ -1,2 +1,2 @@
 # ZY-Player-Resouce
-丗界の殘酷な物語
+世界の残酷な物語
